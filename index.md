@@ -1,4 +1,4 @@
-# Professional Home Page for Yourname Lastname
+# Professional Home Page for niv inbar
 
 ![my picture](Gemini_Generated_Image_995coe995coe995c.png)
 
